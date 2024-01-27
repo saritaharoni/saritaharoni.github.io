@@ -1,4 +1,4 @@
 # saritaharoni.github.io
 # My name is Sarit Aharoni and I'm a first year PhD student at Weizamnn Institute of Science working on bactria stain isolation
-!(https://www.familyfirsturgentcareconroe.com/wp-content/uploads/2023/07/AdobeStock_592943452-scaled-560x315_c.jpeg)
+<img width="410" alt="image" src="https://github.com/saritaharoni/saritaharoni.github.io/assets/139113728/530e9163-f187-4339-8f29-b2cc9a7025e1">
 
